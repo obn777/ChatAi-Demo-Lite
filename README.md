@@ -17,3 +17,6 @@
 Скоро здесь будет видео и полная версия с L3-мышлением, dual-track и автономными агентами.
 
 ★ Star, если ты тоже хочешь, чтобы ИИ помнил не 128k токенов, а всю жизнь.
+https://vm.tiktok.com/ZMDJ89c39/
+https://vm.tiktok.com/ZMDJ8MyyK/
+https://vm.tiktok.com/ZMDJ8VawV/
